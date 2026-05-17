@@ -1,0 +1,1 @@
+# dejicho__ikare_bancho__diary
